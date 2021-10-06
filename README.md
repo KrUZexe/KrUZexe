@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KrUZexe
-- 👀 I’m interested in ...Gaming, content creation, coding.
-- 🌱 I’m currently learning ...Life
+- 👀 I’m interested in gaming, content creation, coding, etc well theres a lot
+- 🌱 I’m currently learning working on myself to become the best version of myself
 - 💞️ I’m looking to collaborate on ...idk at the moment
 - 📫 How to reach me ...   krushnanjanrath1998forwork@gmail.com
 
